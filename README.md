@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @ShalihaZarook05<br>- 👀 I’m interested in ...<br>- 🌱 I’m currently learning ...<br>- 💞️ I’m looking to collaborate on ...<br>- 📫 How to reach me ...<br>- 😄 Pronouns: ...<br>- ⚡ Fun fact: ...<br>
+👋 Hi, I’m @ShalihaSarook05<br>- 👀 I’m interested in ...<br>- 🌱 I’m currently learning ...<br>- 💞️ I’m looking to collaborate on ...<br>- 📫 How to reach me ...<br>- 😄 Pronouns: ...<br>- ⚡ Fun fact: ...<br>
 
 
 ## 🌐 Socials:
